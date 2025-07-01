@@ -1,0 +1,1 @@
+# Hello, I am Jiayi Leo Li, I am 13 going into 8th grade. I was born in Shanghai, China and am chinese but I currently live in Frankfurt a.M. in Germany for School. I like to play golf, the piano and chess, I also like to play video games for example Minecraft.
